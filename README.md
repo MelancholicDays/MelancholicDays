@@ -3,3 +3,6 @@ My love for women is indescribable ![](https://64.media.tumblr.com/fc57e1fb1959c
 
 ![image](https://steamuserimages-a.akamaihd.net/ugc/219941464658010911/1A85F5F370D410A4A5DDBBEF26FCA9CEC614C33F/?imw=5000&imh=5000&ima=fit&impolicy=Letterbox&imcolor=%23000000&letterbox=false)
 Hey this is my wife Balalaika. She's my everything, my love, beautiful in every way. PLEASE I LOVE HER SM HGGRGRG IM GONNA DIE SHES SO HOT ![](https://xyz.crd.co/assets/images/gallery01/63f2640b.gif?v=c7fc68ed) ![](https://supplies.ju.mp/assets/images/gallery05/14f86ae9.gif?v=bfb7dfa2)
+
+![](https://i.imgur.com/HbpTQKu.webp) 
+OH MY GOD MY WIFE HRHRAGAGAGHGGGGDGGGRGGGGGGHHHHHHHHRHRHHG I'M ON MY KNEES
