@@ -10,4 +10,4 @@ Me n who ![](https://xyz.crd.co/assets/images/gallery01/63f2640b.gif?v=c7fc68ed)
 they're so lesbian i love them
 </p>
 
-[♡♡♡](https://youtu.be/NtSEttI8IvA?si=SgFq3vMQ0W1Wuo4a)
+[♡♡♡](https://open.spotify.com/track/2yD1xivuIApRbFw6hhVOTD?si=8J_YeXM3RKuGVKWKKdQcPg)
