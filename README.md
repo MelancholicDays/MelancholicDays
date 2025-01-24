@@ -2,12 +2,16 @@
 <p align="center">
 My love for women is indescribable guys i love women (i'm a bi)
 
-![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSULX8IHL4F0tMG5KdGjMioCGFtJVRwP4UDgT5BqlVHb7oa66aJLUeG1u8&s=10) 
+![](https://i.imgur.com/utSLrHo.png) 
 
 <p align="center">
-  
-Me n who ![](https://xyz.crd.co/assets/images/gallery01/63f2640b.gif?v=c7fc68ed) ![](https://supplies.ju.mp/assets/images/gallery05/14f86ae9.gif?v=bfb7dfa2)
-they're so lesbian i love them
+
+
+with @VividOldTale ![](https://xyz.crd.co/assets/images/gallery01/63f2640b.gif?v=c7fc68ed) ![](https://supplies.ju.mp/assets/images/gallery05/14f86ae9.gif?v=bfb7dfa2)
+
+![](https://i.imgur.com/9WZTllX.jpeg) 
+i love mavuika guys
+
 </p>
 
 [♡♡♡](https://open.spotify.com/track/2yD1xivuIApRbFw6hhVOTD?si=8J_YeXM3RKuGVKWKKdQcPg)
