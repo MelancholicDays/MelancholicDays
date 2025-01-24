@@ -7,7 +7,7 @@ My love for women is indescribable guys i love women (i'm a bi)
 <p align="center">
 
 
-with @VividOldTale ![](https://xyz.crd.co/assets/images/gallery01/63f2640b.gif?v=c7fc68ed) ![](https://supplies.ju.mp/assets/images/gallery05/14f86ae9.gif?v=bfb7dfa2)
+Me n who ![](https://xyz.crd.co/assets/images/gallery01/63f2640b.gif?v=c7fc68ed) ![](https://supplies.ju.mp/assets/images/gallery05/14f86ae9.gif?v=bfb7dfa2)
 
 ![](https://i.imgur.com/9WZTllX.jpeg) 
 i love mavuika guys
