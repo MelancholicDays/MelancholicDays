@@ -3,6 +3,6 @@
 My love for women is indescribable guys i love women (i'm a bi)
 
 ![](https://i.imgur.com/bwfJQ4B.gif) 
-@sceoul what did you do
+yumei what did you do
 
 [♡♡♡](https://open.spotify.com/track/2yD1xivuIApRbFw6hhVOTD?si=8J_YeXM3RKuGVKWKKdQcPg)
