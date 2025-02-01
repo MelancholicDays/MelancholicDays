@@ -2,7 +2,7 @@
 <p align="center">
 My love for women is indescribable guys i love women (i'm a bi)
 
-![](https://i.imgur.com/bwfJQ4B.gif) 
-yumei what did you do
+![](https://i.imgur.com/5OA4LUr.jpeg) 
+OHHJ MY GOD CHAMELON OH MY GODDDDDD CHAMALEON CHAMELEON CHAMELEON OMGGGGGG IM GONNA EXPLODE CHAMELEON MY WIFE ![](https://xyz.crd.co/assets/images/gallery01/63f2640b.gif?v=c7fc68ed) ![](https://xyz.crd.co/assets/images/gallery01/63f2640b.gif?v=c7fc68ed) ![](https://xyz.crd.co/assets/images/gallery01/63f2640b.gif?v=c7fc68ed) 
 
 [♡♡♡](https://open.spotify.com/track/2yD1xivuIApRbFw6hhVOTD?si=8J_YeXM3RKuGVKWKKdQcPg)
