@@ -1,6 +1,3 @@
-free draw with silly wife
-![](https://i.imgur.com/zvSEvzG.png) 
-![](https://i.imgur.com/IQgsyfS.png) 
 
 ![](https://i.imgur.com/ZAUkaCx.png)
 ![](https://i.imgur.com/Wqv9r62.png)
