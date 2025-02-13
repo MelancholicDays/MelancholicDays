@@ -1,6 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=dc143c)
 
-wth r yall stalking me or smth
+![](https://i.imgur.com/791JPyq.jpeg) 
+Me and [Onyx](https://github.com/undeadlost) OMGGGG EEEEE GIGGLLESSS >_<
 
 ![](https://i.imgur.com/ZAUkaCx.png)
 ![](https://i.imgur.com/Wqv9r62.png)
