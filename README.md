@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://komarev.com/ghpvc/?username=your-github-username&color=dc143c">
+  <img src="https://komarev.com/ghpvc/?username=your-github-username&label=Cuties">
 </div>
 
 <div align="center">
