@@ -3,10 +3,10 @@
 </div>
 
 <div align="center">
-  <img src="https://i.imgur.com/791JPyq.jpeg">
+  <img src="https://i.imgur.com/PesaCN5.webp">
 </div>
 
-Twinning with [Onyx](https://github.com/undeadlost) EEEEE GIGGLLESSS >_<
+It's my oc Hansel's birthday guys >_<
 
 <div align="center">
   <img src="https://i.imgur.com/ZAUkaCx.png"
