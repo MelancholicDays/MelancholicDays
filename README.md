@@ -3,16 +3,6 @@
 </div>
 
 <div align="center">
-  <img src="https://i.imgur.com/PesaCN5.webp">
-</div>
-
-It's my oc Hansel's birthday guys >_<
-
-<div align="center">
-  <img src="https://i.imgur.com/YbIikcn.png">
-</div>
-
-<div align="center">
   <img src="https://i.imgur.com/ZAUkaCx.png"
 </div>
 
