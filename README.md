@@ -18,4 +18,4 @@
   <img src="https://i.imgur.com/waq0wP3.png"
 </div>
 
-[♡♡♡](https://open.spotify.com/track/5lWSa1rmuSL6OBPOnkAqoa?si=wjWeidVLReGvyl68q6Tqjw)
+[♡♡♡](https://lagooncompany.fandom.com/wiki/Balalaika)
