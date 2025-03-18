@@ -7,11 +7,6 @@ looking for someone to be my gf bcs i desperately want to be loved
 </div>
 
 <div align="center">
-  Balalaika's Tongue Kisser
-</div>
-
-
-<div align="center">
   <img src="https://i.imgur.com/ZAUkaCx.png"
 </div>
 
