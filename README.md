@@ -1,4 +1,4 @@
-looking for a someone to be my gf bcs i wanna be loved
+looking for someone to be my gf bcs i wanna be loved
 
 <div align="center">
   <img src="https://komarev.com/ghpvc/?username=your-github-username&label=★">
