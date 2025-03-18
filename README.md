@@ -1,5 +1,5 @@
 <div align="center">
-looking for someone to be my gf bcs i wanna be loved
+looking for someone to be my gf bcs i desperately want to be loved
 </div>
 
 <div align="center">
