@@ -1,4 +1,6 @@
+<div align="center">
 looking for someone to be my gf bcs i wanna be loved
+</div>
 
 <div align="center">
   <img src="https://komarev.com/ghpvc/?username=your-github-username&label=★">
