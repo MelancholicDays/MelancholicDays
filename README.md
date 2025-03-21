@@ -1,9 +1,10 @@
-<div align="center">
-Might be constantly online, might also be gone for months and never came back
-</div>
-  
+ 
 <div align="center">
   <img src="https://komarev.com/ghpvc/?username=your-github-username&label=★">
+</div>
+
+<div align="center">
+Pt is srsly so boring guys pls int with me n lets be friends lets be freaky
 </div>
 
 <div align="center">
