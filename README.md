@@ -4,10 +4,6 @@
 </div>
 
 <div align="center">
-Pt is srsly so boring guys pls int with me n lets be friends lets be freaky
-</div>
-
-<div align="center">
   <img src="https://i.imgur.com/ZAUkaCx.png"
 </div>
 
