@@ -12,6 +12,14 @@ Me n who
 </div>
 
 <div align="center">
+  <img src="https://i.imgur.com/XnDZEte.jpeg">
+</div>
+
+<div align="center">
+i love Beefleef sm 💔
+</div>
+
+<div align="center">
   <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTlzAkLtEgnUydIEyRX8gJfgm6I1hKLYnf7jRamMSHsBA9ftwczg2rm0BaC&s=10>
 </div>
 
