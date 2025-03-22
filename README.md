@@ -16,7 +16,7 @@ Me n who
 </div>
 
 <div align="center">
-i love Beefleef sm 💔
+i love Beefleaf sm 💔
 </div>
 
 <div align="center">
