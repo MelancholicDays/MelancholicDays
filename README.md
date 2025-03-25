@@ -8,7 +8,7 @@
 </div>
 
 <div align="center">
-hey be my lover so we can be like this
+hey be my lover so we can be like them
 </div>
 
 <div align="center">
