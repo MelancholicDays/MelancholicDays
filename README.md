@@ -8,15 +8,7 @@
 </div>
 
 <div align="center">
-Me n who
-</div>
-
-<div align="center">
-  <img src="https://i.imgur.com/XnDZEte.jpeg">
-</div>
-
-<div align="center">
-i love Beefleaf sm 💔
+hey be my lover so we can be like this
 </div>
 
 <div align="center">
