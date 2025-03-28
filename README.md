@@ -4,11 +4,11 @@
 </div>
 
 <div align="center">
-  <img src="https://static.wikia.nocookie.net/shipping/images/d/db/Beefleaf.jpg/revision/latest?cb=20220509225428">
+  <img src="https://i.imgur.com/1NlStcZ.png">
 </div>
 
 <div align="center">
-hey be my lover so we can be like them
+me x balalaika is real i love my wife
 </div>
 
 <div align="center">
