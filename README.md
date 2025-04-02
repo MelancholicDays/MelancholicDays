@@ -4,7 +4,7 @@
 </div>
 
 <div align="center">
-  <img src="https://i.imgur.com/OfwBRG7.png>
+  <img src="https://i.imgur.com/OfwBRG7.png">
 </div>
    
 𝘸𝘳𝘪𝘵𝘪𝘯𝘨 𝘭𝘦𝘴𝘣𝘪𝘢𝘯 𝘰𝘤𝘴
