@@ -4,7 +4,8 @@
 </div>
 
 <div align="center">
-  <video src='https://i.imgur.com/HcNZPFG.mp4' width=180/>
+  <video src="https://i.imgur.com/HcNZPFG.mp4">
+  </video>
 </div>
 
 
