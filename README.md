@@ -4,11 +4,14 @@
 </div>
 
 <div align="center">
-◟𝙇𝘺𝘯𝘯 ♡ 𝙨𝙝𝙚◞
+◟𝙇𝘺𝘯𝘯 . 𝙨𝙝𝙚◞
 </div>
 <div align="center">
 . ᯓ 𝘉𝘢𝘸𝘢𝘸𝘢𝘪𝘬𝘢'𝘴 
   ᡣ𐭩 𝙬𝙞𝙛𝙚𝙮 ^_^
+</div>
+<div align="center">
+◟ 01.09.2024 ♡◞
 </div>
 
 https://github.com/user-attachments/assets/aeb0b060-b24f-42c5-a1ec-ab5275d1d956
