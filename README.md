@@ -7,7 +7,7 @@
 ◟𝙇𝘺𝘯𝘯 . 𝙨𝙝𝙚◞
 </div>
 <div align="center">
-. ᯓ 𝘉𝘢𝘭𝘢𝘭𝘢𝘪𝘬𝘢'𝘴 
+. ᯓ 𝘽𝘢𝘭𝘢𝘭𝘢𝘪𝘬𝘢'𝘴 
   ᡣ𐭩 𝙬𝙞𝙛𝙚𝙮 ^_^
 </div>
 <div align="center">
