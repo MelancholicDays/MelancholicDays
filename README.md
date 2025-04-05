@@ -17,6 +17,9 @@
 <div align="center">
 <video src="https://github.com/user-attachments/assets/aeb0b060-b24f-42c5-a1ec-ab5275d1d956">
 </div>
+<div align="center">
+<video src="https://github.com/user-attachments/assets/94e3a2be-dca2-4257-ac02-898a2e9abbc4">
+</div>
 
 <div align="center">
  <img src="https://github.com/user-attachments/assets/00964f5e-088d-4a64-9578-8723a6d46e15">
