@@ -17,6 +17,9 @@
 <div align="center">
 <video src="https://github.com/user-attachments/assets/aeb0b060-b24f-42c5-a1ec-ab5275d1d956">
 </div>
+ <div align="center">
+◟ 𝘵𝘩𝘦 𝘢𝘮𝘰𝘶𝘯𝘵 𝘰𝘧 𝘰𝘣𝘴𝘦𝘴𝘴𝘪𝘰𝘯 𝘪 𝘩𝘢𝘷𝘦 𝘧𝘰𝘳 𝘵𝘩𝘪𝘴 𝘸𝘰𝘮𝘢𝘯 𝘪𝘴 𝘶𝘯𝘩𝘦𝘢𝘭𝘵𝘩𝘺
+</div>
 <div align="center">
 <video src="https://github.com/user-attachments/assets/94e3a2be-dca2-4257-ac02-898a2e9abbc4">
 </div>
