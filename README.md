@@ -7,6 +7,21 @@
 </div>
 
 <div align="center">
+<img src="https://i.imgur.com/ChCl0nd.jpeg">
+</div>
+<div align="center">
+those chinese artist tutorials rlly changed my style
+</div>
+
+<div align="center">
+  <img src= "https://i.imgur.com/TbItnVV.webp">
+</div>
+
+<div align=" center">
+<img src="https://64.media.tumblr.com/33e40974b0be6c7e1152ff61d3439c82/b13761e5842ed7c7-19/s500x750/5ad6895cb6b1c3e3a482eecec83d6c1c6f7a138c.pnj">
+</div>
+
+<div align="center">
 ◟𝙇𝘺𝘯𝘯 . 𝙨𝙝𝙚◞
 </div>
 <div align="center">
@@ -18,22 +33,17 @@
 </div>
 
 <div align="center">
- “𝘛𝘩𝘦𝘴𝘦 𝘴𝘤𝘢𝘳𝘴.. 𝘵𝘦𝘭𝘭𝘴 𝘢 𝘴𝘵𝘰𝘳𝘺. 𝘈𝘯𝘥 𝘵𝘩𝘦𝘺 𝘰𝘯𝘭𝘺 𝘮𝘢𝘬𝘦 𝘺𝘰𝘶 𝘮𝘰𝘳𝘦 𝘣𝘦𝘢𝘶𝘵𝘪𝘧𝘶𝘭 𝘵𝘰 𝘮𝘦, 𝘉𝘢𝘭𝘢𝘭𝘢𝘪𝘬𝘢.”
-</div>
-<div align="center">
-  <img src= "https://i.imgur.com/TbItnVV.webp">
-</div>
-<div align="center">
 <video src="https://github.com/user-attachments/assets/aeb0b060-b24f-42c5-a1ec-ab5275d1d956">
 </div>
- <div align="center"><div align="center">
+ 
+ <div align="center">
+𝘓: “𝘛𝘩𝘦𝘴𝘦 𝘴𝘤𝘢𝘳𝘴.. 𝘵𝘦𝘭𝘭𝘴 𝘢 𝘴𝘵𝘰𝘳𝘺. 𝘈𝘯𝘥 𝘵𝘩𝘦𝘺 𝘰𝘯𝘭𝘺 𝘮𝘢𝘬𝘦 𝘺𝘰𝘶 𝘮𝘰𝘳𝘦 𝘣𝘦𝘢𝘶𝘵𝘪𝘧𝘶𝘭 𝘵𝘰 𝘮𝘦.” 
+</div>
+  
+  <div align="center">
   <img src= "https://i.imgur.com/TbItnVV.webp">
  </div>
-◟ 𝘵𝘩𝘦 𝘢𝘮𝘰𝘶𝘯𝘵 𝘰𝘧 𝘰𝘣𝘴𝘦𝘴𝘴𝘪𝘰𝘯 𝘪 𝘩𝘢𝘷𝘦 𝘧𝘰𝘳 𝘵𝘩𝘪𝘴 𝘸𝘰𝘮𝘢𝘯 𝘪𝘴 𝘤𝘳𝘢𝘻𝘺
-</div>
- <div align="center">
-  <img src= "https://i.imgur.com/TbItnVV.webp">
-</div>
+ 
 <div align="center">
 <video src="https://github.com/user-attachments/assets/94e3a2be-dca2-4257-ac02-898a2e9abbc4">
 </div>
