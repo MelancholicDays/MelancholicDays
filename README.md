@@ -35,10 +35,6 @@ those chinese artist tutorials rlly changed my style
 <div align="center">
 <video src="https://github.com/user-attachments/assets/aeb0b060-b24f-42c5-a1ec-ab5275d1d956">
 </div>
- 
- <div align="center">
-𝘓: “𝘛𝘩𝘦𝘴𝘦 𝘴𝘤𝘢𝘳𝘴.. 𝘵𝘦𝘭𝘭𝘴 𝘢 𝘴𝘵𝘰𝘳𝘺. 𝘈𝘯𝘥 𝘵𝘩𝘦𝘺 𝘰𝘯𝘭𝘺 𝘮𝘢𝘬𝘦 𝘺𝘰𝘶 𝘮𝘰𝘳𝘦 𝘣𝘦𝘢𝘶𝘵𝘪𝘧𝘶𝘭 𝘵𝘰 𝘮𝘦.” 
-</div>
   
   <div align="center">
   <img src= "https://i.imgur.com/TbItnVV.webp">
@@ -46,6 +42,10 @@ those chinese artist tutorials rlly changed my style
  
 <div align="center">
 <video src="https://github.com/user-attachments/assets/94e3a2be-dca2-4257-ac02-898a2e9abbc4">
+</div>
+
+ <div align="center">
+𝘵𝘩𝘦 𝘸𝘢𝘺 𝘴𝘩𝘦 𝘫𝘶𝘴𝘵 𝘵𝘩𝘳𝘦𝘸 𝘙𝘰𝘤𝘬 𝘰𝘯𝘵𝘰 𝘵𝘩𝘦 𝘤𝘢𝘳 𝘸𝘪𝘵𝘩 𝘰𝘯𝘦 𝘩𝘢𝘯𝘥 𝘩𝘦𝘭𝘭𝘰??? 
 </div>
 
 <div align="center">
