@@ -2,16 +2,6 @@
 <div align="center">
   <img src="https://komarev.com/ghpvc/?username=your-github-username&label=★">
 </div>
-<div align="center">
-  <img src= "https://i.imgur.com/TbItnVV.webp">
-</div>
-
-<div align="center">
-<img src="https://i.imgur.com/ChCl0nd.jpeg">
-</div>
-<div align="center">
-those chinese artist tutorials rlly changed my style
-</div>
 
 <div align="center">
   <img src= "https://i.imgur.com/TbItnVV.webp">
