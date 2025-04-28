@@ -17,14 +17,6 @@
 <div align="center">
 . ᯓ 𝘽𝙖𝙡𝙖𝙡𝙖𝙞𝙠𝙖'𝙨 
   ᡣ𐭩 𝙬𝙞𝙛𝙚𝙮 ^_^
-
-  <div align="center">
-  <img src= "https://i.imgur.com/TbItnVV.webp">
-</div>
-
-<div align="center">
-<video src="https://github.com/user-attachments/assets/aeb0b060-b24f-42c5-a1ec-ab5275d1d956">
-</div>
   
   <div align="center">
   <img src= "https://i.imgur.com/TbItnVV.webp">
