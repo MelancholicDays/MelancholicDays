@@ -4,12 +4,13 @@
 </div>
 
 <div align="center">
-𝘥𝘰𝘮 𝘺𝘰𝘶𝘯𝘨𝘦𝘳 𝘸𝘰𝘮𝘢𝘯 𝘹 𝘴𝘶𝘣 𝘰𝘭𝘥𝘦𝘳 𝘸𝘰𝘮𝘢𝘯 𝘪𝘴 𝘱𝘦𝘢𝘬
+  <img src= "https://i.imgur.com/TbItnVV.webp">
 </div>
 
 <div align="center">
-  <img src= "https://i.imgur.com/TbItnVV.webp">
+𝘥𝘰𝘮 𝘺𝘰𝘶𝘯𝘨𝘦𝘳 𝘸𝘰𝘮𝘢𝘯 𝘹 𝘴𝘶𝘣 𝘰𝘭𝘥𝘦𝘳 𝘸𝘰𝘮𝘢𝘯 𝘪𝘴 𝘱𝘦𝘢𝘬
 </div>
+
 
 <div align=" center">
 <img src="https://64.media.tumblr.com/33e40974b0be6c7e1152ff61d3439c82/b13761e5842ed7c7-19/s500x750/5ad6895cb6b1c3e3a482eecec83d6c1c6f7a138c.pnj">
