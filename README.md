@@ -8,7 +8,10 @@
 </div>
 
 <div align="center">
-𝘥𝘰𝘮 𝘺𝘰𝘶𝘯𝘨𝘦𝘳 𝘸𝘰𝘮𝘢𝘯 𝘹 𝘴𝘶𝘣 𝘰𝘭𝘥𝘦𝘳 𝘸𝘰𝘮𝘢𝘯 𝘪𝘴 𝘱𝘦𝘢𝘬
+  <img src= "https://i.imgur.com/qpRKZcP.jpeg">
+</div>
+<div align="center">
+my wife ghhrrrr meows
 </div>
 
 
