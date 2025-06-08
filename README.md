@@ -20,7 +20,7 @@ my wife ghhrrrr meows
 </div>
 
 <div align="center">
-◟𝙇𝘺𝘯𝘯 . 𝙨𝙝𝙚◞
+◟𝙇𝘺𝘯𝘯 / 𝘚𝘦𝘯 . 𝙨𝙝𝙚◞
 </div>
 <div align="center">
 . ᯓ 𝘽𝙖𝙡𝙖𝙡𝙖𝙞𝙠𝙖'𝙨 
