@@ -8,10 +8,10 @@
 </div>
 
 <div align="center">
-  <img src= "https://i.imgur.com/qpRKZcP.jpeg">
+  <img src= "[https://imgur.com/a/cyOn7uA#BnxoNCN]">
 </div>
 <div align="center">
-my wife ghhrrrr meows
+MY WIFE IS SO BEAUTIFUL >_<
 </div>
 
 
