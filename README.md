@@ -7,9 +7,7 @@
   <img src= "https://i.imgur.com/TbItnVV.webp">
 </div>
 
-<div align="center">
-  <img src= "">
-</div>
+![Image](https://github.com/user-attachments/assets/298a849d-8624-4e91-8443-df3a3ab104a6)
 <div align="center">
 MY WIFE IS SO BEAUTIFUL >_<
 </div>
