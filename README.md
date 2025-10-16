@@ -16,13 +16,6 @@ i love my wife
 <div align=" center">
 <img src="https://64.media.tumblr.com/33e40974b0be6c7e1152ff61d3439c82/b13761e5842ed7c7-19/s500x750/5ad6895cb6b1c3e3a482eecec83d6c1c6f7a138c.pnj">
 </div>
-
-<div align="center">
-◟𝙇𝘺𝘯𝘯 / 𝘚𝘦𝘯 . 𝙨𝙝𝙚◞
-</div>
-<div align="center">
-. ᯓ 𝘽𝙖𝙡𝙖𝙡𝙖𝙞𝙠𝙖'𝙨 
-  ᡣ𐭩 𝙬𝙞𝙛𝙚𝙮 ^_^
   
   <div align="center">
   <img src= "https://i.imgur.com/TbItnVV.webp">
