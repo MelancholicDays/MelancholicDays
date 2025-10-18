@@ -7,7 +7,10 @@
   <img src= "https://i.imgur.com/TbItnVV.webp">
 </div>
 
-![Image](https://i.imgur.com/DhJOAj4.jpeg) 
+<div align="center">
+<img src= "https://i.imgur.com/DhJOAj4.jpeg">
+</div>
+
 <div align="center">
 i love my wife
 </div>
