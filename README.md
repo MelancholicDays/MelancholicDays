@@ -8,11 +8,11 @@
 </div>
 
 <div align="center">
-<img src= "https://i.imgur.com/DhJOAj4.jpeg">
+<img src= "https://i.imgur.com/oqAdaNd.png">
 </div>
 
 <div align="center">
-i love my wife
+“𝘠𝘰𝘶 𝘢𝘳𝘦 𝘴𝘰 𝘭𝘰𝘷𝘦𝘭𝘺. 𝘌𝘷𝘦𝘳𝘺𝘵𝘩𝘪𝘯𝘨 𝘢𝘣𝘰𝘶𝘵 𝘺𝘰𝘶. 𝘑𝘶𝘴𝘵 𝘭𝘪𝘬𝘦 𝘵𝘩𝘦 𝘮𝘰𝘰𝘯, 𝘯𝘰𝘵 𝘢𝘭𝘸𝘢𝘺𝘴 𝘧𝘶𝘭𝘭, 𝘣𝘶𝘵 𝘢𝘭𝘸𝘢𝘺𝘴 𝘣𝘦𝘢𝘶𝘵𝘪𝘧𝘶𝘭.”
 </div>
 
   
@@ -21,22 +21,9 @@ i love my wife
  </div>
  
 <div align="center">
-<video src="https://github.com/user-attachments/assets/94e3a2be-dca2-4257-ac02-898a2e9abbc4">
+ <img src="https://i.imgur.com/TwI9a9h.png">
 </div>
 
- <div align="center">
-𝘵𝘩𝘦 𝘸𝘢𝘺 𝘴𝘩𝘦 𝘫𝘶𝘴𝘵 𝘵𝘩𝘳𝘦𝘸 𝘙𝘰𝘤𝘬 𝘰𝘯𝘵𝘰 𝘵𝘩𝘦 𝘤𝘢𝘳 𝘸𝘪𝘵𝘩 𝘰𝘯𝘦 𝘩𝘢𝘯𝘥 𝘩𝘦𝘭𝘭𝘰??? 
-</div>
-
-<div align="center">
- <img src="https://github.com/user-attachments/assets/00964f5e-088d-4a64-9578-8723a6d46e15">
-</div>
-<div align="center">
-𝘩𝘢𝘩𝘢 𝘮𝘢𝘧𝘪𝘢 𝘣𝘰𝘴𝘴 𝘱𝘢𝘵 𝘱𝘢𝘵
-</div>
-<div align="center">
-  <img src= "https://i.imgur.com/TbItnVV.webp">
-</div>
 <div align="center">
 ◟ 01.09.2024 ♡◞
 </div>
