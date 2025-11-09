@@ -12,11 +12,6 @@
 </div>
 
 <div align="center">
-<img src=
-"https://i.imgur.com/EUuHB2e.jpeg">
-</div>
-
-<div align="center">
   <img src= "https://i.imgur.com/TbItnVV.webp">
 </div>
 
