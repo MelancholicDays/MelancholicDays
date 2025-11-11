@@ -8,6 +8,14 @@
 </div>
 
 <div align="center">
+<img src=
+"https://i.imgur.com/WyQSuQv.png">
+</div>
+<div align="center">
+my team is goated yal
+</div>
+
+<div align="center">
 <img src="https://i.imgur.com/lrEDGYa.jpeg">
 </div>
 
