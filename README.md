@@ -6,17 +6,12 @@
 <div align="center">
   <img src= "https://i.imgur.com/TbItnVV.webp">
 </div>
-
 <div align="center">
-<img src=
-"https://i.imgur.com/WyQSuQv.png">
-</div>
-<div align="center">
-my team is goated yal
+isabella from tpn shahhehdish ilysm and im so attached to you that i had to draw you
 </div>
 
 <div align="center">
-<img src="https://i.imgur.com/lrEDGYa.jpeg">
+<img src="https://i.imgur.com/lyj4soy.png">
 </div>
 
 <div align="center">
