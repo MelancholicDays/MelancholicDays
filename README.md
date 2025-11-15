@@ -44,5 +44,10 @@ isabella from tpn shahhehdish ilysm and im so attached to you that i had to draw
 </div>
 
 <div align="center">
-◟ 01.09.2024 ♡◞
+  <img src= "https://64.media.tumblr.com/7e0bc967d868ef588b9c25fd0b246e86/c8ae3fe295f98d87-8a/s75x75_c1/c808b464b02e2d21801788cf2084069b8047a94a.gifv">
+</div>
+
+<div align="center">
+<img src=
+"https://i.imgur.com/MLFnOui.jpeg">
 </div>
