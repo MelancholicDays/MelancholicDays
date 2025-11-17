@@ -11,7 +11,7 @@
   <img src= "https://i.imgur.com/TbItnVV.webp">
 </div>
 <div align="center">
-isabella from tpn shahhehdish i'm so inlove and i'm so attached to you that i had to draw you and cry my eyes out everytime i hear your lullaby
+isabella from tpn shahhehdish i'm so inlove with you it hurts and i'm so deeply attached to you that i had to draw you and cry my eyes out everytime i hear your lullaby
 </div>
 <div align="center">
   <img src= "https://i.imgur.com/TbItnVV.webp">
