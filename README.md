@@ -8,7 +8,7 @@
 </div>
 
 <div align="center">
-2025 wives tier list
+2025 tier list
 </div>
 <div align="center">
   <img src= "https://i.imgur.com/hQaKrxG.png">
