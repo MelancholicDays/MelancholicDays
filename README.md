@@ -4,17 +4,14 @@
 </div>
 
 <div align="center">
-<video src='https://github.com/user-attachments/assets/edd0b30b-fa6c-483a-8c87-c3985873591f'/>
+  <img src= "https://i.imgur.com/TbItnVV.webp">
 </div>
 
 <div align="center">
-  <img src= "https://i.imgur.com/TbItnVV.webp">
+2025 wives tier list
 </div>
 <div align="center">
-isabella from tpn shahhehdish i'm so inlove with you it hurts and i'm so deeply attached to you that i had to draw you and cry my eyes out everytime i hear your lullaby
-</div>
-<div align="center">
-  <img src= "https://i.imgur.com/TbItnVV.webp">
+  <img src= "https://i.imgur.com/hQaKrxG.png">
 </div>
 
 <div align="center">
