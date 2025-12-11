@@ -8,6 +8,9 @@
 </div>
 
 <div align="center">
+super creek daisuki
+</div>
+<div align="center">
 <video src='https://github.com/user-attachments/assets/8df16dd6-27d7-4fe5-bc42-70659a829b30'/>
 </div>
 
