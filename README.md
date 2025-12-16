@@ -18,7 +18,7 @@ super creek daisuki
 2025 tier list
 </div>
 <div align="center">
-  <img src= "https://i.imgur.com/hQaKrxG.png">
+  <img src= "https://i.imgur.com/iHkAuRJ.png">
 </div>
 
 <div align="center">
