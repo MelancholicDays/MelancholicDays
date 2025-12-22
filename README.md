@@ -32,5 +32,5 @@ super creek daisuki
 
 <div align="center">
 <img src=
-"https://i.imgur.com/fsXqaZf.png">
+"https://i.imgur.com/DtStfmI.png">
 </div>
