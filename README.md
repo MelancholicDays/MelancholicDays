@@ -29,7 +29,7 @@ super creek daisuki
   <img src= "https://i.imgur.com/TbItnVV.webp">
 </div>
 
-HAHAHAHAHAHAHAHAHAHAHAHAHAHHAHAHAHAHAHAHAHAHAHAHA
+i've never been so lucky in my lif
 <div align="center">
 <img src=
 "https://i.imgur.com/GdqGLW9.jpeg">
