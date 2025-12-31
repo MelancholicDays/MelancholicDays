@@ -8,10 +8,10 @@
 </div>
 
 <div align="center">
-super creek daisuki
+2026 will nyat be my year dawg
 </div>
 <div align="center">
-<video src='https://github.com/user-attachments/assets/8df16dd6-27d7-4fe5-bc42-70659a829b30'/>
+<video src='https://github.com/user-attachments/assets/0fb111b1-729e-456e-8401-0e5701f0ccdf'/>
 </div>
 
 <div align="center">
