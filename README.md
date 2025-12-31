@@ -8,7 +8,7 @@
 </div>
 
 <div align="center">
-2026 will nyat be my year dawg
+2026 couldn't get worse than 2025 righ
 </div>
 <div align="center">
 <video src='https://github.com/user-attachments/assets/0fb111b1-729e-456e-8401-0e5701f0ccdf'/>
