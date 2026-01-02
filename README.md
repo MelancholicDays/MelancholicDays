@@ -29,8 +29,8 @@
   <img src= "https://i.imgur.com/TbItnVV.webp">
 </div>
 
-i always wi- what
+i won
 <div align="center">
 <img src=
-"https://i.imgur.com/GdqGLW9.jpeg">
+"https://i.imgur.com/ear75ao.png">
 </div>
