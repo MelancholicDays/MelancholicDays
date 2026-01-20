@@ -29,8 +29,8 @@
   <img src= "https://i.imgur.com/TbItnVV.webp">
 </div>
 
-AH DUO YOU MADE A BEAUTIFUL SON
+you cant even mention lauma ok
 <div align="center">
 <img src=
-"https://i.imgur.com/2QBdh9k.png">
+"https://i.imgur.com/6OqMaRU.png">
 </div>
