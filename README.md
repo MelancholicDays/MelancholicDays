@@ -32,5 +32,5 @@
 you cant even mention lauma ok
 <div align="center">
 <img src=
-"https://i.imgur.com/6OqMaRU.png">
+"https://i.imgur.com/D8P9pl7.png">
 </div>
