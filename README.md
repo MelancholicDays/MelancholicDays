@@ -8,7 +8,7 @@
 </div>
 
 <div align="center">
-i totally never got distracted with how pretty lauma's looks and spent like 20 minutes taking tons of pics hh wht r u talking abt
+i totally never got distracted with how pretty lauma looks and spent like 20 minutes taking tons of pics hh wht r u talking abt
 </div>
 <div align="center">
 <img src="https://i.imgur.com/zAnlX7i.png"/>
