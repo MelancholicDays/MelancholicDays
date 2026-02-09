@@ -8,17 +8,10 @@
 </div>
 
 <div align="center">
-2026 couldn't get worse than 2025 righ
+i totally never got distracted with how pretty lauma's looks and spent like 20 minutes taking tons of pics hh wht r u talking abt
 </div>
 <div align="center">
-<video src='https://github.com/user-attachments/assets/0fb111b1-729e-456e-8401-0e5701f0ccdf'/>
-</div>
-
-<div align="center">
-2025 tier list
-</div>
-<div align="center">
-  <img src= "https://i.imgur.com/iHkAuRJ.png">
+<img src="https://i.imgur.com/zAnlX7i.png"/>
 </div>
 
 <div align="center">
@@ -26,11 +19,9 @@
 </div>
 
 <div align="center">
-  <img src= "https://i.imgur.com/TbItnVV.webp">
+2025 tier list this feels outdated already i wanna change it
+</div>
+<div align="center">
+  <img src= "https://i.imgur.com/iHkAuRJ.png">
 </div>
 
-you cant even mention lauma ok
-<div align="center">
-<img src=
-"https://i.imgur.com/D8P9pl7.png">
-</div>
