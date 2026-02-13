@@ -18,4 +18,10 @@ i totally never got distracted with how pretty lauma is and spent like 20 minute
   <img src= "https://64.media.tumblr.com/ee0a26db8581031d25c53337e0deba08/c8ae3fe295f98d87-2e/s75x75_c1/665b03955ed9896a3d344bec34cdc37c8d5ba36b.gifv">
 </div>
 
+<div align="center">
+2025 tier feels old already i wanna change it
+</div>
+<div align="center">
+<img src="https://i.imgur.com/iHkAuRJ.png">
+</div>
 
