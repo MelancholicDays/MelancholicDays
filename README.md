@@ -22,6 +22,6 @@ i totally never got distracted with how pretty lauma is and spent like 20 minute
 2025 tier feels old already i wanna change it
 </div>
 <div align="center">
-<img src="https://i.imgur.com/iHkAuRJ.png">
+<img src="https://plain-apac-prod-public.komododecks.com/202602/13/pIKeHBCT3hPg0Qs4l3hp/image.png">
 </div>
 
