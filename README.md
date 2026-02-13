@@ -11,7 +11,7 @@
 i totally never got distracted with how pretty lauma is and spent like 20 minutes taking tons of pics wht r u talking abt
 </div>
 <div align="center">
-<img src="https://i.imgur.com/NAzHuPe.png"/>
+<img src="https://i.imgur.com/NAzHuPe.png">
 </div>
 
 <div align="center">
