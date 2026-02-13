@@ -8,10 +8,10 @@
 </div>
 
 <div align="center">
-i totally never got distracted with how pretty lauma looks and spent like 20 minutes taking tons of pics hh wht r u talking abt
+i totally never got distracted with how pretty lauma is and spent like 20 minutes taking tons of pics wht r u talking abt
 </div>
 <div align="center">
-<img src="https://i.imgur.com/zAnlX7i.png"/>
+<img src="https://i.imgur.com/NAzHuPe.png"/>
 </div>
 
 <div align="center">
@@ -22,6 +22,6 @@ i totally never got distracted with how pretty lauma looks and spent like 20 min
 2025 tier list this feels outdated already i wanna change it
 </div>
 <div align="center">
-  <img src= "https://i.imgur.com/iHkAuRJ.png">
+  <img src= "https://i.imgur.com/gAijuW0.png">
 </div>
 
