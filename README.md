@@ -8,10 +8,14 @@
 </div>
 
 <div align="center">
-i totally never got distracted with how pretty lauma is and spent like 20 minutes taking tons of pics wht r u talking abt
+i love lauma
 </div>
 <div align="center">
-<img src="https://i.imgur.com/zAnlX7i.png">
+<img src="https://i.imgur.com/x69TaSv.png">
+</div>
+
+<div align="center">
+  <img src= "https://i.imgur.com/TbItnVV.webp">
 </div>
 
 <div align="center">
@@ -19,7 +23,11 @@ i totally never got distracted with how pretty lauma is and spent like 20 minute
 </div>
 
 <div align="center">
-2025 tier feels old already i wanna change it
+  <img src= "https://i.imgur.com/TbItnVV.webp">
+</div>
+
+<div align="center">
+2025 tier feels old already
 </div>
 <div align="center">
 <img src="https://plain-apac-prod-public.komododecks.com/202602/13/pIKeHBCT3hPg0Qs4l3hp/image.png">
