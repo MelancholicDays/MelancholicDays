@@ -1,7 +1,4 @@
- 
-<div align="center">
-  <img src="https://komarev.com/ghpvc/?username=your-github-username&label=★">
-</div>
+
 
 <div align="center">
   <img src= "https://i.imgur.com/TbItnVV.webp">
