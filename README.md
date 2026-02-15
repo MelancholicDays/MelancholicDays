@@ -1,4 +1,9 @@
-
+<div align="center">
+look at my horse girls doing dawg
+</div>
+<div align="center">
+<img src="https://i.imgur.com/OOghYIF.png">
+</div>
 
 <div align="center">
   <img src= "https://i.imgur.com/TbItnVV.webp">
@@ -21,12 +26,5 @@ i love lauma
 
 <div align="center">
   <img src= "https://i.imgur.com/TbItnVV.webp">
-</div>
-
-<div align="center">
-2025 tier feels old already
-</div>
-<div align="center">
-<img src="https://plain-apac-prod-public.komododecks.com/202602/13/pIKeHBCT3hPg0Qs4l3hp/image.png">
 </div>
 
