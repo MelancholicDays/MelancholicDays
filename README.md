@@ -1,5 +1,5 @@
 <div align="center">
-look at my horse girls doing dawg
+look at my horse girls dawg
 </div>
 <div align="center">
 <img src="https://i.imgur.com/OOghYIF.png">
