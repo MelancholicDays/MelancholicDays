@@ -1,9 +1,7 @@
 <div align="center">
-look at my horse girls dawg
-</div>
-<div align="center">
-<img src="https://i.imgur.com/OOghYIF.png">
-</div>
+  <video src='https://github.com/user-attachments/assets/49f9418a-c69c-4500-8843-633ca6691f50'>
+  </div>
+    
 
 <div align="center">
   <img src= "https://i.imgur.com/TbItnVV.webp">
