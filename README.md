@@ -20,7 +20,7 @@
 i love lauma
 </div>
 <div align="center">
-<img src="https://i.imgur.com/x69TaSv.png">
+<img src="https://i.imgur.com/Kh8OlOC.png">
 </div>
 
 <div align="center">
