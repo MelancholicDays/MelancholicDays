@@ -22,10 +22,10 @@ i love lauma
 <div align="center">
 <img src="https://i.imgur.com/Kh8OlOC.png">
 </div>
+<div align="center">
+drawn by me
+</div>
 
 <div align="center">
   <img src= "https://i.imgur.com/TbItnVV.webp">
-</div>
-<div align="center">
-drawn by me
 </div>
