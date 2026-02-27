@@ -20,10 +20,10 @@
 i love lauma
 </div>
 <div align="center">
-<img src="https://i.imgur.com/Kh8OlOC.png">
+<img src="https://i.imgur.com/v6Cqopc.png">
 </div>
 <div align="center">
-drawn by me
+OH MY GOODDD MOTHER
 </div>
 
 <div align="center">
