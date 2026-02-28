@@ -23,7 +23,7 @@ I LOVE LAUMA
 <img src="https://i.imgur.com/B1GR6Gb.png">
 </div>
 <div align="center">
-HAPPY BIRTHDAY MY LOVE
+drawn by me! <3
 </div>
 
 <div align="center">
