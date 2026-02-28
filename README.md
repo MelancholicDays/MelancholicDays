@@ -1,4 +1,11 @@
 <div align="center">
+https://rentry.co/lauma4ever
+</div>
+<div align="center">
+  <img src= "https://i.imgur.com/TbItnVV.webp">
+</div>
+
+<div align="center">
   <video src='https://github.com/user-attachments/assets/16dfa7d6-d358-4afc-a88c-dec6b0e6a1c9'>
   </div>
     
