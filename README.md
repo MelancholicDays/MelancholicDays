@@ -17,13 +17,13 @@
 
 
 <div align="center">
-i love lauma
+I LOVE LAUMA
 </div>
 <div align="center">
-<img src="https://i.imgur.com/v6Cqopc.png">
+<img src="https://i.imgur.com/B1GR6Gb.png">
 </div>
 <div align="center">
-OH MY GOODDD MOTHER
+HAPPY BIRTHDAY MY LOVE
 </div>
 
 <div align="center">
