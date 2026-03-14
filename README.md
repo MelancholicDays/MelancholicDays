@@ -6,7 +6,7 @@ https://rentry.co/lauma4ever
 </div>
 
 <div align="center">
-fruitcake kdrama moment
+fruitcake kdrama moment w/ onyx
 </div>
 <div align="center">
   <img src="https://i.imgur.com/HFIR9H9.png">
