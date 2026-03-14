@@ -6,7 +6,10 @@ https://rentry.co/lauma4ever
 </div>
 
 <div align="center">
-  <video src='https://github.com/user-attachments/assets/16dfa7d6-d358-4afc-a88c-dec6b0e6a1c9'>
+fruitcake kdrama moment
+</div>
+<div align="center">
+  <img src="https://i.imgur.com/HFIR9H9.png">
   </div>
     
 
@@ -30,7 +33,7 @@ I LOVE LAUMA
 <img src="https://i.imgur.com/B1GR6Gb.png">
 </div>
 <div align="center">
-drawn by me! <3
+drawn by me!
 </div>
 
 <div align="center">
