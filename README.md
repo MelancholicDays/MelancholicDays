@@ -5,9 +5,8 @@ https://rentry.co/lauma4ever
   <img src= "https://i.imgur.com/TbItnVV.webp">
 </div>
 
-<div align="center">
-fruitcake kdrama moment w/ onyx
-</div>
+ 
+⠀⠀⠀fruitcake kdrama moment w/ [onyx](https://github.com/undeadlost) 
 <div align="center">
   <img src="https://i.imgur.com/HFIR9H9.png">
   </div>
