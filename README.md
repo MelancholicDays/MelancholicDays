@@ -3,6 +3,21 @@
   <img src= "https://i.imgur.com/TbItnVV.webp">
 </div>
 
+<div align="center">
+I love Lauma
+</div>
+<div align="center">
+<img src="https://i.imgur.com/B1GR6Gb.png">
+</div>
+<div align="center">
+drawn by me!
+</div>
+
+<div align="center">
+  <img src= "https://i.imgur.com/TbItnVV.webp">
+</div>
+
+
 fruitcake kdrama moment w/  [onyx](https://github.com/undeadlost) !!
 
 <div align="center">
@@ -23,18 +38,3 @@ fruitcake kdrama moment w/  [onyx](https://github.com/undeadlost) !!
   <img src= "https://i.imgur.com/TbItnVV.webp">
 </div>
 
-
-
-<div align="center">
-I LOVE LAUMA
-</div>
-<div align="center">
-<img src="https://i.imgur.com/B1GR6Gb.png">
-</div>
-<div align="center">
-drawn by me!
-</div>
-
-<div align="center">
-  <img src= "https://i.imgur.com/TbItnVV.webp">
-</div>
