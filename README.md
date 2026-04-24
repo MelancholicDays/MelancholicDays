@@ -6,6 +6,11 @@
 <div align="center">
 https://rentry.co/lauma4ever
 </div>
+
+<div align="center">
+  <img src= "https://i.imgur.com/TbItnVV.webp">
+</div>
+
 <div align="center">
 I love Lauma
 </div>
