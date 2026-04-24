@@ -7,11 +7,12 @@
 I love Lauma
 </div>
 <div align="center">
-<img src="https://i.imgur.com/B1GR6Gb.png">
+<img src="https://i.imgur.com/dJBrMsM.png">
 </div>
 <div align="center">
-drawn by me!
+LOOK AT MY WIFE
 </div>
+
 
 <div align="center">
   <img src= "https://i.imgur.com/TbItnVV.webp">
