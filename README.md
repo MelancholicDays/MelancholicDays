@@ -27,7 +27,7 @@ LOOK AT MY WIFE
 </div>
 
 
-fruitcake kdrama moment w/  [onyx](https://github.com/undeadlost) !!
+FRUITCAKE W/  [ONYX](https://github.com/undeadlost) !!
 
 <div align="center">
   <img src="https://i.imgur.com/HFIR9H9.png">
