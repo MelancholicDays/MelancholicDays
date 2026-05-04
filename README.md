@@ -12,7 +12,7 @@ https://rentry.co/lauma4ever
 </div>
 
 <div align="center">
-I love Lauma
+I love Lauma. I'm Lauma's #1 lipstick taster. Lauma is beauty, Lauma is life, Lauma is my world.
 </div>
 <div align="center">
 <img src="https://i.imgur.com/xL3V5lw.png">
