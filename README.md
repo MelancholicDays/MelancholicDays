@@ -12,7 +12,7 @@ https://rentry.co/lauma4ever
 </div>
 
 <div align="center">
-I love Lauma. Lauma is a goddess. Lauma is beauty. Lauma is life. Lauma is everything.
+I love Lauma. Lauma is a goddess. Lauma is beauty. Lauma is life.
 </div>
 <div align="center">
 <img src="https://i.imgur.com/xL3V5lw.png">
