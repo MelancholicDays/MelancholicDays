@@ -15,10 +15,10 @@ https://rentry.co/lauma4ever
 I love Lauma. Lauma is a goddess. Lauma is beauty. Lauma is life.
 </div>
 <div align="center">
-<img src="https://i.imgur.com/xL3V5lw.png">
+<img src="https://i.imgur.com/8oXOuO0.png">
 </div>
 <div align="center">
-LOOK AT MY WIFE
+she's so stinkin adorable
 </div>
 
 
