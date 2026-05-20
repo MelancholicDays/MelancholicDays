@@ -17,9 +17,6 @@ I love Lauma. Lauma is a goddess. Lauma is beauty. Lauma is life.
 <div align="center">
 <img src="https://i.imgur.com/xL3V5lw.png">
 </div>
-<div align="center">
-she's so stinkin adorable
-</div>
 
 
 <div align="center">
