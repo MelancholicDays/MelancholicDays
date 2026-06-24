@@ -15,7 +15,7 @@ https://rentry.co/lauma4ever
 I love Lauma. Lauma is a goddess. Lauma is beauty. Lauma is life.
 </div>
 <div align="center">
-<video src="https://github.com/user-attachments/assets/202d3085-277e-4b08-801d-5141545083d2">
+<img src="https://i.imgur.com/ae7p7NI.png">
 </div>
 
 <div align="center">
