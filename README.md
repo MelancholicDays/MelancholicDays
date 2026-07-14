@@ -22,16 +22,12 @@ I love Lauma. Lauma is a goddess. Lauma is beauty. Lauma is life.
   <img src= "https://i.imgur.com/TbItnVV.webp">
 </div>
 
-
-FRUITCAKE W/  [ONYX](https://github.com/undeadlost) !!
-
 <div align="center">
-  <img src="https://i.imgur.com/HFIR9H9.png">
-  </div>
+Hear me out on Cadence.
+</div>
 <div align="center">
-  <img src="https://i.imgur.com/pJyFCLM.jpeg">
-  </div>    
-
+  <img width="400" height="400" alt="Image" src="https://github.com/user-attachments/assets/3f46edba-7d96-4604-a8a2-20fcff4dc214" />
+  
 <div align="center">
   <img src= "https://i.imgur.com/TbItnVV.webp">
 </div>
