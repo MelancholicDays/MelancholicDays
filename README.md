@@ -23,10 +23,10 @@ I love Lauma. Lauma is a goddess. Lauma is beauty. Lauma is life.
 </div>
 
 <div align="center">
-Hear me out on Cadence.
+Hear me out on Cadence
 </div>
 <div align="center">
-  <img width="400" height="400" alt="Image" src="https://github.com/user-attachments/assets/3f46edba-7d96-4604-a8a2-20fcff4dc214" />
+<img width="400" height="400" alt="Image" src="https://github.com/user-attachments/assets/558feceb-31f2-4f97-bfc8-3a8ac97bddc4" />
   
 <div align="center">
   <img src= "https://i.imgur.com/TbItnVV.webp">
