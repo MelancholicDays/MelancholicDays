@@ -26,7 +26,7 @@ I love Lauma. Lauma is a goddess. Lauma is beauty. Lauma is life.
   i'm balalaika's lipstick 
 </div>
 <div align="center">
-<video src= "https://github.com/user-attachments/assets/7e06ed01-77fc-447b-88fd-8f6895e1e864"/>
+<video src= "https://github.com/user-attachments/assets/17f2165a-403a-4872-bab1-2ff2ee4a28e2"/>
   
 <div align="center">
   <img src= "https://i.imgur.com/TbItnVV.webp">
