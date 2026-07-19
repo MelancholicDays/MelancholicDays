@@ -23,10 +23,10 @@ I love Lauma. Lauma is a goddess. Lauma is beauty. Lauma is life.
 </div>
 
 <div align="center">
-Hear me out on Cadence
+  i'm balalaika's lipstick 
 </div>
 <div align="center">
-<img width="400" height="400" alt="Image" src="https://github.com/user-attachments/assets/558feceb-31f2-4f97-bfc8-3a8ac97bddc4" />
+<video src= "https://github.com/user-attachments/assets/365e52b8-77b0-4ecb-91db-7e47e4dbae34"/>
   
 <div align="center">
   <img src= "https://i.imgur.com/TbItnVV.webp">
