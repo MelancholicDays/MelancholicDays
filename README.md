@@ -12,7 +12,7 @@ https://rentry.co/lauma4ever
 </div>
 
 <div align="center">
-I love Lauma. Lauma is a goddess. Lauma is beauty. Lauma is life.
+I love Lauma. Always.
 </div>
 <div align="center">
 <img src="https://i.imgur.com/AAU89Pu.jpeg">
@@ -23,7 +23,7 @@ I love Lauma. Lauma is a goddess. Lauma is beauty. Lauma is life.
 </div>
 
 <div align="center">
-  yumeshipping is fun
+  yumeyuri, balalaika's military coat:3
 </div>
 <div align="center">
 <img src= "https://i.imgur.com/c8ub58N.png"/>
