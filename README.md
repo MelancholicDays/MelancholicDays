@@ -23,10 +23,13 @@ I love Lauma. Lauma is a goddess. Lauma is beauty. Lauma is life.
 </div>
 
 <div align="center">
-  index finger bcs my index finger lowk feels like a whole entire limb 
+  yumeshipping is fun
 </div>
 <div align="center">
-<video src= "https://github.com/user-attachments/assets/17f2165a-403a-4872-bab1-2ff2ee4a28e2"/>
+<img src= "https://i.imgur.com/c8ub58N.png"/>
+<div align="center">
+<img src= "https://i.imgur.com/gnMdBKK.png"/>
+
   
 <div align="center">
   <img src= "https://i.imgur.com/TbItnVV.webp">
