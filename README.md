@@ -28,7 +28,7 @@ I love Lauma. Always.
 <div align="center">
 <img src= "https://i.imgur.com/c8ub58N.png"/>
 <div align="center">
-<img src= "https://i.imgur.com/gnMdBKK.png"/>
+<img src= "https://i.imgur.com/JvcBIIf.png"/>
 
   
 <div align="center">
