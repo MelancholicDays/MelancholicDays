@@ -12,23 +12,11 @@ https://rentry.co/lauma4ever
 </div>
 
 <div align="center">
-I love Lauma. Always.
+I love Lauma
 </div>
 <div align="center">
 <img src="https://i.imgur.com/AAU89Pu.jpeg">
 </div>
-
-<div align="center">
-  <img src= "https://i.imgur.com/TbItnVV.webp">
-</div>
-
-<div align="center">
-  yumeyuri, balalaika's military coat:3
-</div>
-<div align="center">
-<img src= "https://i.imgur.com/c8ub58N.png"/>
-<div align="center">
-<img src= "https://i.imgur.com/JvcBIIf.png"/>
 
   
 <div align="center">
